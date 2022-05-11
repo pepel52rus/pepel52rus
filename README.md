@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @pepel52rus
-- 👀 I’m interested in nothing else DevOps)
+- 👀 I’m interested nothing else DevOps)
 - 🌱 I’m currently learning DevOps courses
 - 💞️ I’m looking to collaborate in learning DevOps skills
 - 📫 How to reach me t.me/pepel52ru
